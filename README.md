@@ -1,8 +1,6 @@
-# great_function
-where the great function turns / entire sky moves
-
-
-mathematical explorations
-
-
-*“Whereas the beautiful is limited, the sublime is limitless, so that the mind in the presence of the sublime, attempting to imagine what it cannot, has pain in the failure but pleasure in contemplating the immensity of the attempt”*
+Nel suo profondo vidi che s’interna
+legato con amore in un volume,
+ciò che per l’universo si squaderna:
+sustanze e accidenti e lor costume
+quasi conflati insieme, per tal modo
+che ciò ch’i’ dico è un semplice lume. (Par. 33.85-90)
